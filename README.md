@@ -14,7 +14,7 @@
   
 - 💞️ I’m looking to collaborate on ...
   
-- 📫 How to reach me ...(+2349077300312)-WhatsApp
+- 📫 How to reach me ...(+2348154585224)-WhatsApp
   
 - ⚡ Fun fact: ... When I'm not building dreams or solving complex UI challenges, I can be found reading, working out and spending time with my family🧑🏻‍🧑🏻‍🧒🏻
 
