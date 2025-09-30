@@ -19,6 +19,7 @@ I'm open to collaboration and solving problems that challenge me to grow, inspir
 - HTML & CSS
 - Tailwind CSS
 - Bootstrap
+  
 I also enjoy using tools like **Figma** to bring my ideas and projects to life.
 
 
