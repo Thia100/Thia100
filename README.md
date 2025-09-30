@@ -1,4 +1,5 @@
-# Hi there <img src="https://fonts.gstatic.com/s/e/notoemoji/latest/1f44b/lottie.json">
+# Hey there! <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="30px">
+
 
 
 [<kbd>**Instagram** 📷</kbd>](https://www.instagram.com/thia_wip)
